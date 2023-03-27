@@ -1,3 +1,3 @@
 # WarCraft
 cxsjsx
-\[It's a piece of shit\]
+$A total piece of shit$
